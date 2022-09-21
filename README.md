@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I am Chitraksh 👋
 
 - 🔭 I’m currently working on getting my DSA skills up
 - 🌱 I’m currently learning Data Science in R
