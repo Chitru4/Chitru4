@@ -7,4 +7,4 @@
 - 💬 Ask me about anything coding related
 - 📫 How to reach me: chitraksh24@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am 1800+ rated in rapid on chess.com
+- ⚡ Fun fact: I am 1900+ rated in rapid on chess.com
